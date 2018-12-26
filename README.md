@@ -10,6 +10,9 @@
 
 #### 伊俊贤:
 
-1. 待续
+1. 伊俊贤，关于g将军的敢死队问题：
+
+   博客地址：https://blog.csdn.net/yiruochu/article/details/85247661
+
 2. 
 
